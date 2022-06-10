@@ -19,7 +19,7 @@ I began watching anime and manga in earnest in 2013 but joined AniLIst in Jan 13
 * <a>76-85</a>: &ensp;Good! I enjoyed!
 * <a>66-75</a>: &ensp;Average. Nothing noteworthy.
 * <a>00-65</a>: &ensp;Bad or Forgettable. Notepad remembers.
-* <a>96-99</a>: &ensp;Same as breath. But, too experienced to rewatch...
+* <a>96-99</a>: &ensp;Same Too interesting but too experienced to rewatch...
 
 ***
 
